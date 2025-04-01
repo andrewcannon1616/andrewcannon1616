@@ -1,4 +1,4 @@
-Hi, I’m Andrew B. Cannon
+Hi, I’m Andrew Cannon
 
 Second year University Student attending Wilfrid Laurier University
 
